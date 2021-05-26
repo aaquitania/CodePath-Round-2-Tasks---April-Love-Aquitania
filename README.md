@@ -11,6 +11,7 @@ Moving forward, please make sure that you are able to attend at least half of th
 Please let us know if you have futher questions. 
 
 
+
 All the best, 
 
 CodePath Team
